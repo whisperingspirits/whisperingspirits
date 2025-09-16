@@ -6,7 +6,7 @@
 
 *i'm not usually in the mood to interact with anybody,* **ESPECIALLY** *if i have offtab in my name!!*
 
-*i'm pretty sure people often see me "offtab" with a friend (or few) or by myself. i'm always free to cuddles + hugs (c+h)! ^^*
+*i'm pretty sure people often see me offtab with a friend (or few) or by myself. i'm always free to cuddles + hugs (c+h)! ^^*
 
 *although, if you wanna interact but i have offtab (or afk) in my name, you can just whisper!* **(UNLESS i have dni / dniuf in my name, then don't).** *there's still a chance i won't reply though.*
 
